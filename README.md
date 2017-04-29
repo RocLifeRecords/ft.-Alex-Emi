@@ -13,3 +13,4 @@ The tonal shifts in the vocals also are quite affecting. The lyrics has a tempo 
 
 LABELS: ELECTRONICS EURO POP POP POP FOLK
 LOCATION: ΑΘΉΝΑ, ΕΛΛΆΔΑ
+https://youtu.be/3qvOKDVRlfk
